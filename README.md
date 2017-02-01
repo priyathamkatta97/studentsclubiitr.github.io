@@ -1,1 +1,1 @@
-# studentsclubiitr.github.io
+# studentsclub
